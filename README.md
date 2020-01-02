@@ -1,4 +1,4 @@
-Here are the art pieces by me. I like drawing, painting, and all variations of decorating.
+I like drawing, painting, and all variations of decorating.
 
 [Go Back to Main](https://trinhshub.github.io)
 
